@@ -1,1 +1,0 @@
-# github_resume_pradeep_bhat
